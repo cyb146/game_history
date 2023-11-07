@@ -15,3 +15,6 @@
 2018年4月30日 通关GTA5剧情模式
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/004GTA5-20180430.PNG)
+
+2018年7月1日 通关命运石之门0
+![image](https://github.com/cyb146/game_history/blob/main/image/005STEINS%3BGATE0-20180701.PNG)
