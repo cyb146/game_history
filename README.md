@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2020年5月19日 通关Just Shapes & Beats
+
+![image](https://github.com/cyb146/game_history/blob/main/image/007Just%20Shapes%20%26%20Beats-20200519.PNG)
+
 2019年8月 通关undertale
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/006undertale-201908.PNG)
