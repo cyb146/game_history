@@ -2,7 +2,7 @@
 
 2021年10月12日 通关万花镜5：理与迷宮的少女
 
-https://github.com/cyb146/game_history/blob/main/image/011wanhuajiang5-20211012.PNG
+![image](https://github.com/cyb146/game_history/blob/main/image/011wanhuajiang5-20211012.PNG)
 
 2021年9月12日 通关我的公司996
 
