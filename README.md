@@ -1,10 +1,26 @@
 # 搓衣板的游戏通关日志
 
+2021年10月12日 通关万花镜5：理与迷宮的少女
+
+https://github.com/cyb146/game_history/blob/main/image/011wanhuajiang5-20211012.PNG
+
+2021年9月12日 通关我的公司996
+
+![image](https://github.com/cyb146/game_history/blob/main/image/010mycompany996-20210912.PNG)
+
+2021年2月17日 通关全网公敌
+
+![image](https://github.com/cyb146/game_history/blob/main/image/009quanwanggongdi-20210217.PNG)
+
+2020年12月 通关东方绀珠传（普通难度）
+
+![image](https://github.com/cyb146/game_history/blob/main/image/008Legacy%20of%20Lunatic%20Kingdom202012.PNG)
+
 2020年5月19日 通关Just Shapes & Beats
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/007Just%20Shapes%20%26%20Beats-20200519.PNG)
 
-2019年8月 通关undertale
+2019年8月 通关传说之下
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/006undertale-201908.PNG)
 
