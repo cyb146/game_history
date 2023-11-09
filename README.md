@@ -1,5 +1,29 @@
 # 搓衣板的游戏通关日志
 
+2022年7月21日 通关奥日与黑暗森林
+
+![image](https://github.com/cyb146/game_history/blob/main/image/017Ori%20and%20the%20Blind%20Forest20220721.PNG)
+
+2022年7月12日 完美通关Vampires' Melody
+
+![image](https://github.com/cyb146/game_history/blob/main/image/016Vampires'%20Melody-20220712Finsh.PNG)
+
+2022年5月12日 通关鬼泣1（最终BOSS作弊通关）
+
+![image](https://github.com/cyb146/game_history/blob/main/image/015DevilMayCryHD1-20220512.PNG)
+
+2022年5月2日 通关狙击精英2
+
+![image](https://github.com/cyb146/game_history/blob/main/image/014Sniper%20Elite%20V2%20Remastered-20220502.PNG)
+
+2022年5月2日 通关天命奇御1（非完美结局）
+
+![image](https://github.com/cyb146/game_history/blob/main/image/013tianminqiyu-20220502.PNG)
+
+2021年12月29日 通关尼可梦：灭绝
+
+![image](https://github.com/cyb146/game_history/blob/main/image/012NexomonExtinction-20211229.PNG)
+
 2021年10月12日 通关万花镜5：理与迷宮的少女
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/011wanhuajiang5-20211012.PNG)
