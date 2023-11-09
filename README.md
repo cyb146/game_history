@@ -1,5 +1,13 @@
 # 搓衣板的游戏通关日志
 
+2022年8月1日 通关狙击精英3
+
+![image](https://github.com/cyb146/game_history/blob/main/image/019Sniper%20Elite%203-20220801.PNG)
+
+2022年7月25日 通关Hand of Fate（最低难度）
+
+![image](https://github.com/cyb146/game_history/blob/main/image/018HandOfFate-20220725.PNG)
+
 2022年7月21日 通关奥日与黑暗森林
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/017Ori%20and%20the%20Blind%20Forest20220721.PNG)
@@ -8,7 +16,7 @@
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/016Vampires'%20Melody-20220712Finsh.PNG)
 
-2022年5月12日 通关鬼泣1（最终BOSS作弊通关）
+2022年5月12日 通关鬼泣1（最终BOSS作弊）
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/015DevilMayCryHD1-20220512.PNG)
 
