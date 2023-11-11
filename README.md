@@ -1,5 +1,25 @@
 # 搓衣板的游戏通关日志
 
+2022年10月15日 白金Just Shapes & Beats  评价：其实就是把漏掉的歌单挑战成就做掉了
+
+![image](https://github.com/cyb146/game_history/blob/main/image/030Just%20Shapes%20%26%20Beats-20221015Finish.PNG)
+
+2022年10月1日 通关鬼泣2  评价：最简单的一部鬼泣，完全变成了射击游戏，我还挺喜欢的
+
+![image](https://github.com/cyb146/game_history/blob/main/image/029DevilMayCryHD2-20221001.PNG)
+
+2022年9月29日 通关泰坦陨落2  评价：挑不出毛病的好作品，略短
+
+![image](https://github.com/cyb146/game_history/blob/main/image/028Titanfall%C2%AE%202-20220929.PNG)
+
+2022年9月26日 通关狙击精英4  评价：和狙击精英2、3没什么大区别，这一类型的游戏我已经玩够了，再不碰了
+
+![image](https://github.com/cyb146/game_history/blob/main/image/027Sniper%20Elite%204-20220926.PNG)
+
+2022年9月23日 通关奥日与黑暗森林  评价：画面很美，音乐很好听，战斗还不错
+
+![image](https://github.com/cyb146/game_history/blob/main/image/026Ori%20and%20the%20Will%20of%20the%20Wisps-20220923.PNG)
+
 2022年9月16日 通关巫师1  评价：很丰富的系统，地图很烂，剧情一般，至少玩的挺尽兴的
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/025TheWitcher-20220916.PNG)
