@@ -1,22 +1,26 @@
 # 搓衣板的游戏通关日志
 
-2022年8月31日 通关炼金工房A3 评价：A3开始没有中文了，玩的非常吃力也耗尽了我对这个系列的热情，也许过几年会回来继续玩炼金工房系列，它们治dzyw还是很不错的
+2022年9月16日 通关巫师1  评价：很丰富的系统，地图很烂，剧情一般，至少玩的挺尽兴的
+
+![image](https://github.com/cyb146/game_history/blob/main/image/025TheWitcher-20220916.PNG)
+
+2022年8月31日 通关炼金工房A3  评价：A3开始没有中文了，玩的非常吃力也耗尽了我对这个系列的热情，也许过几年会回来继续玩炼金工房系列，它们治dzyw还是很不错的
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/024lianjingongfangA3-20220831.PNG)
 
-2022年8月27日 通关使命召唤1（盗版） 评价：我不适合玩这个，突然冒出来的敌人经常吓我一跳
+2022年8月27日 通关使命召唤1（盗版）  评价：我不适合玩这个，突然冒出来的敌人经常吓我一跳
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/023COD1-20220827.PNG)
 
-2022年8月24日 通关炼金工房A2 评价：和前作一样很好玩
+2022年8月24日 通关炼金工房A2  评价：和前作一样很好玩
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/022lianjingongfangA2-20220824.PNG)
 
-2022年8月20日 通关炼金工房A1 评价：意外的很有意思
+2022年8月20日 通关炼金工房A1  评价：意外的很有意思
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/021lianjingongfangA1-20220820.PNG)
 
-2022年8月13日 通关成步堂精选集：逆转裁判1（盗版） 评价：这游戏画风实在太猎奇玩不下去了
+2022年8月13日 通关成步堂精选集：逆转裁判1（盗版）  评价：这游戏画风实在太猎奇玩不下去了
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/020chengbutang1-20220813.PNG)
 
