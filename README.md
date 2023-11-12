@@ -92,7 +92,7 @@
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/027Sniper%20Elite%204-20220926.PNG)
 
-2022年9月23日  通关奥日与黑暗森林  评价：画面很美，音乐很好听，战斗还不错
+2022年9月23日  通关奥日与萤火意志  评价：画面很美，音乐很好听，战斗还不错，结局逆天，不能接受
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/026Ori%20and%20the%20Will%20of%20the%20Wisps-20220923.PNG)
 
