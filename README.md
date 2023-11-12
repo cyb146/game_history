@@ -36,7 +36,7 @@
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/041Sekiro-20230617.PNG)
 
-2023年5月26日  通关死亡搁浅  评价：边骂边玩，边玩边骂，不太喜欢，路途有点太折磨人了
+2023年5月26日  通关死亡搁浅  评价：边骂边玩，边玩边骂，不太喜欢，路途有点太折磨人了。最后还要硬等十几分钟，结局还喂屎，这制作人的两部游戏我都不喜欢
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/040DEATHSTRANDING-20230526.PNG)
 
