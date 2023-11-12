@@ -1,5 +1,41 @@
 # 搓衣板的游戏通关日志
 
+2023年4月26日  通关质量效应3  评价：只能说及格，加上跳跃系统之后人物动作经常卡住，结局喂屎
+
+![image](https://github.com/cyb146/game_history/blob/main/image/039MassEffect3-20230426.PNG)
+
+2023年4月14日  通关鬼泣4  评价：这比前几部简单好多，但秘密任务拿蓝魂石还是很逆天
+
+![image](https://github.com/cyb146/game_history/blob/main/image/038Devil-May-Cry4-20230414.PNG)
+
+2023年4月9日  通关质量效应2  评价：挑不出啥毛病，最完美的一部质量效应
+
+![image](https://github.com/cyb146/game_history/blob/main/image/037MassEffect2-20230409.PNG)
+
+2023年3月25日 通关质量效应1  评价：有大半时间是2022年玩的，这里只是完成了结局，主线做的挺不错的，支线就...干巴巴的一言难尽
+
+![image](https://github.com/cyb146/game_history/blob/main/image/036MassEffect1-20230325.PNG)
+
+2023年3月24日 通关最后指令  评价：是谁把贪吃蛇和弹幕结合到一块的？这比我之前玩的那个996电子垃圾更胜一筹
+
+![image](https://github.com/cyb146/game_history/blob/main/image/035last-command-20230324.PNG)
+
+2023年3月11日 通关巫师2  评价：难度血量设置的极其不合理，普通难度一碰就死，简单难度像死侍一样根本死不了
+
+![image](https://github.com/cyb146/game_history/blob/main/image/034TheWitcher2-20230311.PNG)
+
+2023年2月24日 通关鬼泣3（作弊）  评价：倒数两关作弊通了，以后装个换风格换武器的插件再玩
+
+![image](https://github.com/cyb146/game_history/blob/main/image/033DevilMayCryHD3-20230224.PNG)
+
+2023年2月2日 通关Rabi-Ribi的Hard难度  评价：还是很喜欢
+
+![image](https://github.com/cyb146/game_history/blob/main/image/032rabi-ribiHard-20230202.PNG)
+
+2023年1月17日 白金终焉之莉莉丝  评价：除了地图实在是太简陋，别的都还好
+
+![image](https://github.com/cyb146/game_history/blob/main/image/031ENDERLILIES-20230117Finish.PNG)
+
 2022年10月15日 白金Just Shapes & Beats  评价：其实就是把漏掉的歌单挑战成就做掉了
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/030Just%20Shapes%20%26%20Beats-20221015Finish.PNG)
