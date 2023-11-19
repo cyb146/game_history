@@ -1,7 +1,7 @@
 # 搓衣板的游戏通关日志
 
 2023年11月19日  通关博德之门1死斗黑坑  评价：没多大意思的模式，匆匆通关了，制作组甚至成就都没做。最后一战懒得重复赚钱直接CE加了30w做了充足准备，
-没想到贝罗斯这么弱，有点让人失望
+没想到贝洛斯这么弱，有点让人失望
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/050Baldur'sGateTheBlackPits-20231119.PNG)
 
