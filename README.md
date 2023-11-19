@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2023年11月19日  通关博德之门1死斗黑坑  评价：没多大意思的模式，匆匆通关了，制作组甚至成就都没做
+
+![image](https://github.com/cyb146/game_history/blob/main/image/050Baldur'sGateTheBlackPits-20231119.PNG)
+
 2023年11月11日  通关冰风谷冬之心  评价：依然是严重的堆怪和平淡无比的剧情，鸡肋
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/049IceWindDaleWinterHeart-20231111.PNG)
