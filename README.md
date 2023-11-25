@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2023年11月25提  通关失落的遗迹主线  评价：小品级游戏，质量还行，但让我再用BOSS模式打一遍是完全没有兴趣了
+
+![image](https://github.com/cyb146/game_history/blob/main/image/052LostRuins-20231125.PNG)
+
 2023年11月21日  通关爱上火车波莱特主线剧情  评价：前期还好，后期感情戏有点拖沓了，也没和人物产生共鸣，虽然结局还行，但只能算合格
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/051aishanghuochebolaitePure-20231121.PNG)
