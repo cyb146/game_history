@@ -1,8 +1,12 @@
 # 搓衣板的游戏通关日志
 
+2023年12月18日  完成爱上火车二六路线剧情  评价：人物刻画的特别完美，但是结局太刀了好难过
+
+![image](https://github.com/cyb146/game_history/blob/main/image/055aishanghuoche26Last-20231218.PNG)
+
 2023年12月12日  完成爱上火车玲奈路线剧情  评价：感情发展有点过快了，完全没适应上
 
-![image](https://github.com/cyb146/game_history/blob/main/image/054aishanghuochelinnaiPure-20231121.PNG)
+![image](https://github.com/cyb146/game_history/blob/main/image/054aishanghuochelinnaiPure-20231212.PNG)
 
 2023年12月5日  完成爱上火车波莱特后日谈剧情  评价：完全无法与波莱特产生共鸣，对女儿也同样没有兴趣，凑合着过掉了，而且八六好落寞
 
