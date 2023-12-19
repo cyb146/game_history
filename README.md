@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2023年12月19日  通关刺客信条-起源主线部分  评价：我终于见识到育碧的罐头开放世界了，这么好的地图，这么凑数的清据点和支线任务，简直就是浪费资源，以后不会再碰育碧的游戏
+
+![image](https://github.com/cyb146/game_history/blob/main/image/056Assassinscreedorigins-20231219.PNG)
+
 2023年12月18日  完成爱上火车二六路线剧情  评价：人物刻画的特别完美，但是结局太刀了好难过
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/055aishanghuoche26Last-20231218.PNG)
