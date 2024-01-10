@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年1月11日  通关空洞骑士结局一  评价：可喜可贺！我总算是通关了这部有着逆天策划的游戏，类银河恶魔城还不给地图，地图又设计的这么复杂，没暴死是真得谢谢美术和战斗设计。算及格吧，游玩起来不看攻略会非常痛苦。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/058HollowKnight-20240111.PNG)
+
 2024年1月10日  通关双人成行  评价：和咲夜一起花13小时通关了，中规中矩，只是很有创意，但玩法一般般
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/057ittakestwo-20240110.PNG)
