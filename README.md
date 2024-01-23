@@ -1,5 +1,29 @@
 # 搓衣板的游戏通关日志
 
+2024年1月24日  白金NEKOPARA 4  评价：NEKOPARA 4
+
+![image](https://github.com/cyb146/game_history/blob/main/image/065NEKOPARA4-20240124.PNG)
+
+2024年1月24日  白金NEKOPARA 3  评价：NEKOPARA 3
+
+![image](https://github.com/cyb146/game_history/blob/main/image/064NEKOPARA3-20240124.PNG)
+
+2024年1月24日  白金NEKOPARA 2  评价：NEKOPARA 2
+
+![image](https://github.com/cyb146/game_history/blob/main/image/063NEKOPARA2-20240124.PNG)
+
+2024年1月24日  白金NEKOPARA 1  评价：NEKOPARA 1
+
+![image](https://github.com/cyb146/game_history/blob/main/image/062NEKOPARA1-20240124.PNG)
+
+2024年1月24日  白金NEKOPARA 0  评价：NEKOPARA 0
+
+![image](https://github.com/cyb146/game_history/blob/main/image/061NEKOPARA0-20240124.PNG)
+
+2024年1月24日  白金NEKOPARA EXTRA  评价：NEKOPARA EXTRA
+
+![image](https://github.com/cyb146/game_history/blob/main/image/060NEKOPARAEXTRA-20240124.PNG)
+
 2024年1月23日  完成爱上火车日日姬路线剧情  评价：有情人终成眷属，还不错
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/059aishanghuocheririji-20240123.PNG)
