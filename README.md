@@ -1,6 +1,6 @@
 # 搓衣板的游戏通关日志
 
-2024年1越23日  完成爱上火车日日姬路线剧情  评价：有情人终成眷属，还不错
+2024年1月23日  完成爱上火车日日姬路线剧情  评价：有情人终成眷属，还不错
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/059aishanghuocheririji-20240123.PNG)
 
