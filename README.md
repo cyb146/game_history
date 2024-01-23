@@ -1,26 +1,26 @@
 # 搓衣板的游戏通关日志
 
-2024年1月24日  白金NEKOPARA 4  评价：NEKOPARA 4
+2024年1月24日  白金NEKOPARA 4  评价：NEKOPARA 4，最后的大场面太壮观了
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/065NEKOPARA4-20240124.PNG)
 
-2024年1月24日  白金NEKOPARA 3  评价：NEKOPARA 3
+2024年1月24日  白金NEKOPARA 3  评价：NEKOPARA 3，这两位就很尴尬了，我一直不记得她俩的名字...
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/064NEKOPARA3-20240124.PNG)
 
-2024年1月24日  白金NEKOPARA 2  评价：NEKOPARA 2
+2024年1月24日  白金NEKOPARA 2  评价：NEKOPARA 2，红豆和椰子也很可爱
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/063NEKOPARA2-20240124.PNG)
 
-2024年1月24日  白金NEKOPARA 1  评价：NEKOPARA 1
+2024年1月24日  白金NEKOPARA 1  评价：123合集包入坑作，巧克力和香草很可爱
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/062NEKOPARA1-20240124.PNG)
 
-2024年1月24日  白金NEKOPARA 0  评价：NEKOPARA 0
+2024年1月24日  白金NEKOPARA 0  评价：补全猫娘故事入手。讲的猫娘小时候
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/061NEKOPARA0-20240124.PNG)
 
-2024年1月24日  白金NEKOPARA EXTRA  评价：NEKOPARA EXTRA
+2024年1月24日  白金NEKOPARA EXTRA  评价：补全猫娘故事入手，忘记讲的什么了，有空的时候重新补一下
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/060NEKOPARAEXTRA-20240124.PNG)
 
