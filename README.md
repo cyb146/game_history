@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年1月26日  完成爱上火车稀咲路线  评价：和玲奈路线差不多...没什么代入感，可能只是拿来补充一些设定，比如浦上是女的之类的
+
+![image](https://github.com/cyb146/game_history/blob/main/image/066aishanghuochexixiao-20240126.PNG)
+
 2024年1月24日  白金NEKOPARA 4  评价：NEKOPARA 4，最后的大场面太壮观了
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/065NEKOPARA4-20240124.PNG)
