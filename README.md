@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年1月30日  完成爱上火车日日姬后日谈剧情  评价：日日姬这部分有些过于理想化了...观光餐车这个计划实际上也非常的不切实际...除此以外都还不错，讲述日日姬独立成长的故事。我对铁路人偶美玖路挺感兴趣的，但剧情居然没有好好描述她，经常一笔带过，有点可惜
+
+![image](https://github.com/cyb146/game_history/blob/main/image/067aishanghuocheririjiLast-20240130.PNG)
+
 2024年1月26日  完成爱上火车稀咲路线  评价：和玲奈路线差不多...没什么代入感，可能只是拿来补充一些设定，比如浦上是女的之类的
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/066aishanghuochexixiao-20240126.PNG)
