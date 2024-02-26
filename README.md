@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年2月26日  通关犹格索托斯的庭院  评价：单从剧情上来说还行，但是经营玩法做的一塌糊涂，后期相当无聊
+
+![image](https://github.com/cyb146/game_history/blob/main/image/069yogsothothsyard-20240226.PNG)
+
 2024年2月23日  完成爱上火车八六主线剧情  评价：我可能是对这条线的期待太高了，实际玩下来并没有特别让人动容的地方，比较中庸，但八六真的很好看
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/068aishanghuoche86Pure-20240223.PNG)
