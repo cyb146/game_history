@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年2月29日  完成爱上火车八六后日谈  评价：这实际上和八六没啥太大关系了，讲的是奥利薇的故事，让人相当感动流泪，很不错。但我一直想了解的延寿机制并没有细讲
+
+![image](https://github.com/cyb146/game_history/blob/main/image/070aishanghuoche86Last-20240229.PNG)
+
 2024年2月26日  通关犹格索托斯的庭院  评价：单从剧情上来说还行，但是经营玩法做的一塌糊涂，后期相当无聊
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/069yogsothothsyard-20240226.PNG)
