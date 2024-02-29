@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年3月1日  完成爱上火车真暗路线  评价：就三章的体量，感情转变可以说是非常突兀
+
+![image](https://github.com/cyb146/game_history/blob/main/image/071aishanghuochezhenanPure-20240301.PNG)
+
 2024年2月29日  完成爱上火车八六后日谈  评价：这实际上和八六没啥太大关系了，讲的是奥利薇的故事，让人相当感动流泪，很不错。但我一直想了解的延寿机制并没有细讲
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/070aishanghuoche86Last-20240229.PNG)
