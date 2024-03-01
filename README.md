@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年3月2日  完成爱上火车凪&深美后日谈  评价：双铁你这就很过分了...重婚啊
+
+![image](https://github.com/cyb146/game_history/blob/main/image/075aishanghuocheshuangreniLast-20240302.PNG)
+
 2024年3月2日  完成爱上火车深美后日谈  评价：让深美等七年着实有点过分
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/074aishanghuocheshenmeiLast-20240302.PNG)
