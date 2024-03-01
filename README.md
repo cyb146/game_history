@@ -1,6 +1,10 @@
 # 搓衣板的游戏通关日志
 
-2024年3月1日  完成爱上火车至&深美路线  评价：这个就非常...扯，为了这个结局想出来的路线
+2024年3月2日  完成爱上火车凪后日谈  评价：比较合理的发展
+
+![image](https://github.com/cyb146/game_history/blob/main/image/073aishanghuochezhiLast-20240302.PNG)
+
+2024年3月1日  完成爱上火车凪&深美路线  评价：这个就非常...扯，为了这个结局想出来的路线，跟火车没啥关系了
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/072aishanghuocheshuangrenPure-20240301.PNG)
 
