@@ -1,6 +1,6 @@
 # 搓衣板的游戏通关日志
 
-2024年3月2日  完成爱上火车凪后日谈  评价：比较合理的发展
+2024年3月2日  完成爱上火车凪后日谈  评价：比较合理的发展，最后直接结婚了就有点。。离谱
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/073aishanghuochezhiLast-20240302.PNG)
 
