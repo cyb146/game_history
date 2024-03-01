@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年3月1日  完成爱上火车至&深美路线  评价：这个就非常...扯，为了这个结局想出来的路线
+
+![image](https://github.com/cyb146/game_history/blob/main/image/072aishanghuocheshuangrenPure-20240301.PNG)
+
 2024年3月1日  完成爱上火车真暗路线  评价：就三章的体量，感情转变可以说是非常突兀
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/071aishanghuochezhenanPure-20240301.PNG)
