@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年3月4日  完成爱上火车总集篇  评价：写的什么玩意，看得我快睡着了，很烂
+
+![image](https://github.com/cyb146/game_history/blob/main/image/076aishanghuochezongjiiLast-20240304.PNG)
+
 2024年3月2日  完成爱上火车凪&深美后日谈  评价：双铁你这就很过分了...重婚啊
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/075aishanghuocheshuangreniLast-20240302.PNG)
