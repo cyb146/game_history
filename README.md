@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年3月4日  白金爱上火车  评价：除了三大主线以及二六线以外，其他的路线完全是一塌糊涂，流水账一样，完全消磨掉了我的兴趣
+
+![image](https://github.com/cyb146/game_history/blob/main/image/077aishanghuochebaijin-20240304.PNG)
+
 2024年3月4日  完成爱上火车总集篇  评价：写的什么玩意，看得我快睡着了，很烂
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/076aishanghuochezongjiiLast-20240304.PNG)
