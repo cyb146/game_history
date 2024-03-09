@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年3月9日  通关天空的蓝与白  评价：烂，而且短，剧情一句话就能概括完全，无论是系统还是剧情都很差劲
+
+![image](https://github.com/cyb146/game_history/blob/main/image/078soratoto-20240309.PNG)
+
 2024年3月4日  白金爱上火车  评价：除了三大主线以及二六线以外，其他的路线完全是一塌糊涂，流水账一样，完全消磨掉了我的兴趣
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/077aishanghuochebaijin-20240304.PNG)
