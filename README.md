@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年3月15日  通关黑道圣徒重启版  评价：一般般吧，好像也挑不出什么问题，但就是单纯的没那么好玩。最后的合家欢结局还是很棒的。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/079saintrowschongqi-20240315.PNG)
+
 2024年3月9日  通关天空的蓝与白  评价：烂，而且短，剧情一句话就能概括完全，无论是系统还是剧情都很差劲
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/078soratoto-20240309.PNG)
