@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年3月16日  通关博德之门2  评价：过于冗长的任务以及没有意义的谜题显著拉低了我的感受，远不如一代。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/080Baldur'sGate2-20240316.PNG)
+
 2024年3月15日  通关黑道圣徒重启版  评价：一般般吧，好像也挑不出什么问题，但就是单纯的没那么好玩。最后的合家欢结局还是很棒的。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/079saintrowschongqi-20240315.PNG)
