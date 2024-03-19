@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年3月19日  通关博德之门2巴尔王座  评价：也就最后一战有点新意了，其余全是无聊的谜语和堆怪。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/081Baldur'sGate2TOB-20240319.PNG)
+
 2024年3月16日  通关博德之门2  评价：过于冗长的任务以及没有意义的谜题显著拉低了我的游玩体验，远不如一代。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/080Baldur'sGate2-20240316.PNG)
