@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年3月24日  以维吉尔通关了鬼泣5的恶魔猎人难度  评价：维吉尔性能真棒，打的很舒服，完全没有卡关
+
+![image](https://github.com/cyb146/game_history/blob/main/image/082Devil-May-Cry5Vergil-20240324.PNG)
+
 2024年3月19日  通关博德之门2巴尔王座  评价：也就最后一战有点新意了，其余全是无聊的谜语和堆怪。死斗黑坑也没兴趣打了，这系列就这样吧，腻了。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/081Baldur'sGate2TOB-20240319.PNG)
