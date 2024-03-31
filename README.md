@@ -1,5 +1,10 @@
 # 搓衣板的游戏通关日志
 
+2024年3月31日  完成真愿朦胧馆所有路线  评价：米娜线相当棒，感情戏写的很好，甚至有点万华镜5的感觉。但纯丽线玲线奏子线就一塌糊涂了，感觉男主步未就是个色批莽夫。
+还有这部galgame的系统有点问题，选择路线后仍然会经历一段重复的共通线，有点不方便。还有名取吃灵魂这个设定没有讲清楚啊，以灵魂为代价实现愿望，男主就这么轻易答应下来了。。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/083zhenyuanmenglongguan-20240331.PNG)
+
 2024年3月24日  以维吉尔通关了鬼泣5的恶魔猎人难度  评价：维吉尔性能真棒，打的很舒服，完全没有卡关
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/082Devil-May-Cry5Vergil-20240324.PNG)
