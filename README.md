@@ -290,7 +290,7 @@
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/012NexomonExtinction-20211229.PNG)
 
-2021年10月12日  通关万花镜5：理与迷宮的少女（盗版）  评价：我第一部认真玩的galgame，爱情故事着实震撼到我
+2021年10月12日  通关万华镜5：理与迷宮的少女（盗版）  评价：我第一部认真玩的galgame，爱情故事着实震撼到我
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/011wanhuajiang5-20211012.PNG)
 
