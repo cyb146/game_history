@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年4月11日  白金交汇协奏曲  评价：有一点命运石之门的感觉，但最终的故事篇章结尾太匆忙了，然后把所有讲不清楚的点都扔进片段里面，这样就导致整个游戏有点头重脚轻，前面这么多伏笔铺垫，到了关键时刻却只造成了平庸的效果。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/085crossconcerto-20240411.PNG)
+
 2024年4月2日  通关漫威银河护卫队  评价：怎么说呢，这玩意要是我真的花几十块钱买了，我会觉得很亏，有很多bug和逆天qte，但免费送的游戏就不亏了，除开这些毛病，故事讲的还可以啦。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/084MarvelsGuardiansoftheGalaxy-20240402.png)
