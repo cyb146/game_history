@@ -2,7 +2,7 @@
 
 2024年4月2日  通关漫威银河护卫队  评价：怎么说呢，这玩意要是我真的花几十块钱买了，我会觉得很亏，有很多bug和逆天qte，但免费送的游戏就不亏了，除开这些毛病，故事讲的还可以啦。
 
-![image](https://github.com/cyb146/game_history/blob/main/image/084MarvelsGuardiansoftheGalaxy-20240402.jpg)
+![image](https://github.com/cyb146/game_history/blob/main/image/084MarvelsGuardiansoftheGalaxy-20240402.png)
 
 2024年3月31日  完成真愿朦胧馆所有路线  评价：米娜线相当棒，感情戏写的很好，甚至有点万华镜5的感觉。但纯丽线玲线奏子线就一塌糊涂了，感觉男主步未就是个色批莽夫。
 还有这部galgame的系统有点问题，选择路线后仍然会经历一段重复的共通线，有点不方便。还有名取吃灵魂这个设定没有讲清楚啊，以灵魂为代价实现愿望，男主就这么轻易答应下来了。。
