@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年4月28日  通关shuffle2  评价：不太喜欢这种风格，玩的好困阿
+
+![image](https://github.com/cyb146/game_history/blob/main/image/088shuffle2-20240428.PNG)
+
 2024年4月19日  以简单难度通关完美音浪  评价：感觉只有在简单模式在玩的才有点感觉，一开始开高难度结果节奏和qte按不准劝退了，中间流程一直堆怪，开头和结尾都不错。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/087hifirush-20240419.PNG)
