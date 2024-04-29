@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年4月29日  专业难度通关杀手暗杀世界所有战役  评价：被我硬生生玩成杀手无双世界哈哈哈，这样子也不错啦
+
+![image](https://github.com/cyb146/game_history/blob/main/image/089hitmanWOS-20240429.PNG)
+
 2024年4月28日  通关shuffle2  评价：不太喜欢这种风格，玩的好困阿
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/088shuffle2-20240428.PNG)
