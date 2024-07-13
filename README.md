@@ -2,6 +2,8 @@
 
 2024年7月13日  全成就魔女的花园  评价：艾克蕾尔太可爱了，明乃也可爱，但其他女主就不怎么样了。故事是圆上了，就是铺垫太多，高潮部分太少了。
 
+![image](https://github.com/cyb146/game_history/blob/main/image/090witchsgarden-20240713.PNG)
+
 2024年4月29日  专业难度通关杀手暗杀世界所有战役  评价：被我硬生生玩成杀手无双世界哈哈哈，这样子也不错啦
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/089hitmanWOS-20240429.PNG)
