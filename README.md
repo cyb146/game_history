@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年7月28日  全成就Parquet  评价：立绘是不错啦，剧情虽说没shuffle2那么让人犯困，但依然很寡淡，男主也是个笨笨的莽夫，对于这种莽夫类角色我一直不怎么喜欢。但是后日谈太仓促了阿，感情线刚开始就结束了？？？
+
+![image](https://github.com/cyb146/game_history/blob/main/image/091Parquet-20240728.PNG)
+
 2024年7月13日  全成就魔女的花园  评价：艾克蕾尔太可爱了，明乃也可爱，但其他女主就不怎么样了。故事是圆上了，就是铺垫太多，高潮部分太少了。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/090witchsgarden-20240713.PNG)
