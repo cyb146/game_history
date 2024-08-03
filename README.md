@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年8月3日  全成就淑女同萌SE  评价：挺不错的，男主成田真理这个角色可以说塑造的相当完美。但是朔线最后冒出来的御门瑠璃以及御门瑠璃线实在是败笔阿。好好的一流作品就这样降了一个档次。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/092shunvtongmeng-20240803.PNG)
+
 2024年7月28日  全成就Parquet  评价：立绘是不错啦，剧情虽说没shuffle2那么让人犯困，但依然很寡淡，男主也是个笨笨的莽夫，对于这种莽夫类角色我一直不怎么喜欢。但是后日谈太仓促了阿，感情线刚开始就结束了？？？
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/091Parquet-20240728.PNG)
