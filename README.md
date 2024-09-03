@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年9月3日  全成就金辉恋曲四重奏  评价：市松央路可以说是我遇到的最讨厌的男主了，干啥啥不行，没有决心没有魄力，还有以前一帮坏朋友，令人厌恶。游戏的话希尔维和理亚线挺不错的，其他线就不怎么样。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/093jinhuilianqu-20240903.PNG)
+
 2024年8月3日  全成就淑女同萌SE  评价：挺不错的，男主成田真理这个角色可以说塑造的相当完美。但是朔线最后冒出来的御门瑠璃以及御门瑠璃线实在是败笔阿。好好的一流作品就这样降了一个档次。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/092shunvtongmeng-20240803.PNG)
