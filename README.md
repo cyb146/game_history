@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年9月11日  全成就金辉恋曲四重奏Golden Time  评价：绚华线我很喜欢，从头笑到尾，我们的市松央路同学终于正常了不再犯病，不过这部作品的后日谈太水啦。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/094jinhuilianqugt-20240911.PNG)
+
 2024年9月3日  全成就金辉恋曲四重奏  评价：市松央路可以说是我遇到的最讨厌的男主了，干啥啥不行，没有决心没有魄力，还有以前一帮坏朋友，令人厌恶。游戏的话希尔维和理亚线挺不错的，其他线就不怎么样。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/093jinhuilianqu-20240903.PNG)
