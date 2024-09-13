@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年9月13日  通关主播女孩重度依赖  评价：或许有一天我会把它全成就，等我的状态好一点的时候。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/095zhubonvhaizhongduyilai-20240913.PNG)
+
 2024年9月11日  全成就金辉恋曲四重奏Golden Time  评价：绚华线我很喜欢，从头笑到尾，我们的市松央路同学终于正常了不再犯病，不过这部作品的后日谈太水啦。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/094jinhuilianqugt-20240911.PNG)
