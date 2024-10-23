@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年10月23日  全成就想要传达给你的爱恋  评价：其他线充其量就是个普通的恋爱故事，但星奏线...也许她真有很大的苦衷，但新岛夕把剧本完全写砸了，导致她变得了一个怎么洗都洗不干净的坏女人。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/096xiangyaozhuandageini-20241023.PNG)
+
 2024年9月13日  通关主播女孩重度依赖  评价：或许有一天我会把它全成就，等我的状态好一点的时候。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/095zhubonvhaizhongduyilai-20240913.PNG)
