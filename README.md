@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年10月29日  全成就中华一商  评价：原本只是想随便玩一下，没想到通关了，作为一款免费游戏来说，虽然有些地方不太好，但是游戏体验还是不错的。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/097zhonghuayishang-20241029.PNG)
+
 2024年10月23日  全成就想要传达给你的爱恋  评价：其他线充其量就是个普通的恋爱故事，但星奏线...也许她真有很大的苦衷，但新岛夕把剧本完全写砸了，导致她变得了一个怎么洗都洗不干净的坏女人。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/096xiangyaozhuandageini-20241023.PNG)
