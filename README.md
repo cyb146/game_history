@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年11月22日  全成就幸运草的约定  评价：男主观感很好，妹妹们很可爱，美中不足的是剧本不够好，没有皆大欢喜的真后宫结局，每次做选择总会伤害到其他人，还遇到了窗口化按钮选不中的bug。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/098cloverdays-20241122.PNG)
+
 2024年10月29日  全成就中华一商  评价：原本只是想随便玩一下，没想到通关了，作为一款免费游戏来说，虽然有些地方不太好，但是游戏体验还是不错的。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/097zhonghuayishang-20241029.PNG)
