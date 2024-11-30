@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2024年11月22日  通关3days  评价：是我很喜欢的剧情类galgame，果然我还是喜欢这种有逻辑性的视觉小说，为此还专门做了一个文档来记录路线，留作纪念吧。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/0993days-20241130.jpg)
+
 2024年11月22日  全成就幸运草的约定  评价：男主观感很好，妹妹们很可爱，美中不足的是剧本不够好，没有皆大欢喜的真后宫结局，每次做选择总会伤害到其他人，还遇到了窗口化按钮选不中的bug。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/098cloverdays-20241122.PNG)
