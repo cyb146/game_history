@@ -1,6 +1,10 @@
 # 搓衣板的游戏通关日志
 
-2024年11月22日  通关3days  评价：是我很喜欢的剧情类galgame，果然我还是喜欢这种有逻辑性的视觉小说，为此还专门做了一个文档来记录路线，留作纪念吧。
+2024年12月4日  通关黑神话悟空  评价：一周目完美通关了，不得不说自从第三章开始游戏体验就很折磨，或许某个时间会再打全成就吧
+
+![image](https://github.com/cyb146/game_history/blob/main/image/100blackwukong-20241204.PNG)
+
+2024年11月30日  通关3days  评价：是我很喜欢的剧情类galgame，果然我还是喜欢这种有逻辑性的视觉小说，为此还专门做了一个文档来记录路线，留作纪念吧。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/099threedays-20241130.PNG)
 
