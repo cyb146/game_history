@@ -1,5 +1,13 @@
 # 搓衣板的游戏通关日志
 
+2024年12月29日  全成就爱丽娅的明日盛典FD  评价：感觉买贵了，BOSS战感受是不错的，但这纯恶心人的地图设计实在是减分，ex关也是如此，本来还想打打灵梦，还是算了吧。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/103aliasFD-20241229.PNG)
+
+2024年12月27日  全成就爱丽娅的明日盛典  评价：剧情又臭又长，不想再碰。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/102alias-20241227.PNG)
+
 2024年12月8日  通关东方月神夜  评价：感觉买贵了，BOSS战感受是不错的，但这纯恶心人的地图设计实在是减分，ex关也是如此，本来还想打打灵梦，还是算了吧。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/101TouhouLunaNights-20241208.PNG)
