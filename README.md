@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2025年1月6日  通关青空下的加缪  评价：虽然被剧透了一下，但看到燐最后留在了青空世界里还是很难受，明明我还以为作者给了一个美好的结局，没想到是个刀子。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/104qingkongxiadejiamiu-20250106.PNG)
+
 2024年12月29日  全成就爱丽娅的明日盛典FD  评价：一般，把写砸的剧本再圆回来的观感不怎么好，而且太短了。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/103aliasFD-20241229.PNG)
