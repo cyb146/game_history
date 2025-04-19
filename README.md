@@ -1,5 +1,13 @@
 # 搓衣板的游戏通关日志
 
+2025年4月19日  通关人狼村之谜  评价：前半部分我其实挺喜欢的，可是为什么要给这种结局，简直荒唐阿，监控和电子锁？太离谱了吧
+
+![image](https://github.com/cyb146/game_history/blob/main/image/106ragingloop-20250419.PNG)
+
+2025年2月3日  通关近月少女的礼仪  评价：我不喜欢瑞穗和她的随从，想到了女圈分子。凑的路线也槽点满满。露娜线和尤希线不错，我喜欢。但少女理论还没推，因此剩了一个露娜后日谈的尾巴，以后再推。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/105jinyueshaonv-20250203.PNG)
+
 2025年1月6日  通关青空下的加缪  评价：虽然被剧透了一下，但看到燐最后留在了青空世界里还是很难受，明明我还以为作者给了一个美好的结局，没想到是个刀子。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/104qingkongxiadejiamiu-20250106.PNG)
