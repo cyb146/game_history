@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2025年4月25日  通关island  评价：好长，内容还行，就是时间循环的逻辑无法推敲。另外，原来已经整整过去一年了阿，感觉像穿越了一样。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/107island-20250425.PNG)
+
 2025年4月19日  通关人狼村之谜  评价：前半部分我其实挺喜欢的，可是为什么要给这种结局，简直荒唐阿，监控和电子锁？太离谱了吧
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/106ragingloop-20250419.PNG)
