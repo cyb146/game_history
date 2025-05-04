@@ -1,5 +1,13 @@
 # 搓衣板的游戏通关日志
 
+2025年5月4日  全成就近月少女的礼仪  评价：推完了少女理论后回来把露娜后日谈推完了，游星的故事就这样要告一段落了。然而，我的工作，我的方向依然没有着落，命运究竟想让我做什么呢？
+
+![image](https://github.com/cyb146/game_history/blob/main/image/109jinyueshaonv-20250504.PNG)
+
+2025年5月4日  全成就少女理论及其周边  评价：大藏家真是混乱，剧情非常棒！
+
+![image](https://github.com/cyb146/game_history/blob/main/image/108shaonvlilun-20250504.PNG)
+
 2025年4月25日  通关island  评价：好长，内容还行，就是时间循环的逻辑无法推敲。另外，原来已经整整过去一年了阿，感觉像穿越了一样。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/107island-20250425.PNG)
