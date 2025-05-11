@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2025年5月10日  通关东方夜雀食堂  评价：尚可的小品游戏，但通关后没有保存按钮，懒得再打一遍了
+
+![image](https://github.com/cyb146/game_history/blob/main/image/110yequeshitang-20250510.PNG)
+
 2025年5月4日  全成就近月少女的礼仪  评价：推完了少女理论后回来把露娜后日谈推完了，游星的故事就这样要告一段落了。然而，我的工作，我的方向依然没有着落，命运究竟想让我做什么呢？
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/109jinyueshaonv-20250504.PNG)
