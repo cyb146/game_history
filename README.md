@@ -1,10 +1,14 @@
 # 搓衣板的游戏通关日志
 
-2025年5月17日  通关四海兄弟1  评价：剧情挺不错的，可惜地图没什么可互动的，完全是线性地图
+2025年6月3日  通关四海兄弟2  评价：除了画质老点，老是撞死之外没啥毛病，但我没有继续玩三个dlc，也许未来会有兴致。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/112sihaixiongdi2-20250603.PNG)
+
+2025年5月17日  通关四海兄弟1  评价：剧情挺不错的，可惜地图没什么可互动的，完全是线性地图。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/111sihaixiongdi1-20250517.PNG)
 
-2025年5月10日  通关东方夜雀食堂  评价：尚可的小品游戏，但通关后没有保存按钮，懒得再打一遍了
+2025年5月10日  通关东方夜雀食堂  评价：尚可的小品游戏，但通关后没有保存按钮，懒得再打一遍了。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/110yequeshitang-20250510.PNG)
 
