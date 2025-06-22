@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2025年6月22日  全成就千恋万花  评价：美术是真心不错，剧情上的话丛雨线挺棒的，还行吧，我期望值有点太高了。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/113qianlianwanhua-20250622.PNG)
+
 2025年6月3日  通关四海兄弟2  评价：除了画质老点，老是撞死之外没啥毛病，但我没有继续玩三个dlc，也许未来会有兴致。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/112sihaixiongdi2-20250603.PNG)
