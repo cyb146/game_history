@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2025年6月29日  全成就星空列车与白的旅行  评价：特别棒的作品，我很喜欢。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/114xingkonglieche-20250629.PNG)
+
 2025年6月22日  全成就千恋万花  评价：美术是真心不错，剧情上的话丛雨线挺棒的，还行吧，我期望值有点太高了。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/113qianlianwanhua-20250622.PNG)
