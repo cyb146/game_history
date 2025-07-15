@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2025年7月14日  通关樱之杜净梦者  评价：共通线是很不错，可惜个人线完全画蛇添足。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/115yingzhidu1-20250714.PNG)
+
 2025年6月29日  全成就星空列车与白的旅行  评价：特别棒的作品，我很喜欢。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/114xingkonglieche-20250629.PNG)
