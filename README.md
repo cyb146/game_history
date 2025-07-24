@@ -1,6 +1,10 @@
 # 搓衣板的游戏通关日志
 
-2025年7月21日  通关樱之杜净梦者2  评价：狗尾续貂的狗尾续貂，为了猎奇而猎奇，写的什么玩意
+2025年7月25日  通关你和她和她的恋爱  评价：非常棒的作品，向日葵好可爱啊。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/117youandherlove-20250725.PNG)
+
+2025年7月21日  通关樱之杜净梦者2  评价：狗尾续貂的狗尾续貂，为了猎奇而猎奇，写的什么玩意。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/116yingzhidu2-20250721.PNG)
 
