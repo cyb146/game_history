@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2025年7月29日  通关駄作  评价：枢好可爱阿，相当喜欢，其他的角色就有点牵强。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/118tuozuo-20250729.PNG)
+
 2025年7月25日  通关你和她和她的恋爱  评价：非常棒的作品，向日葵好可爱啊。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/117youandherlove-20250725.PNG)
