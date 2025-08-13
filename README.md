@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2025年8月13日  通关来自昏暗的时间尽头  评价：搞什么，由乃线写的乱七八糟的，感情线也一如既往的一塌糊涂。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/119laizihunanshijianjintou-20250813.PNG)
+
 2025年7月29日  通关駄作  评价：枢好可爱阿，相当喜欢，其他的角色就有点牵强。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/118tuozuo-20250729.PNG)
