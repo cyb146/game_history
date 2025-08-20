@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2025年8月20日  通关亚托莉我挚爱的时光  评价：剧情挺平庸的，但音乐很好听。我的工作还是没有着落，为什么会这样。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/120atri-20250820.PNG)
+
 2025年8月13日  通关来自昏暗的时间尽头  评价：搞什么，由乃线写的乱七八糟的，感情线也一如既往的一塌糊涂。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/119laizihunanshijianjintou-20250813.PNG)
