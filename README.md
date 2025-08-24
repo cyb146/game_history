@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2025年8月20日  通关不存在的你和我  评价：这个价格来说算不错的了。演出也不错，就是结局太苛刻，选错选项就不得不掐死。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/121bucunzai-20250825.PNG)
+
 2025年8月20日  通关亚托莉我挚爱的时光  评价：剧情挺平庸的，但音乐很好听。我的工作还是没有着落，为什么会这样。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/120atri-20250820.PNG)
