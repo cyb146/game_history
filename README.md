@@ -1,6 +1,10 @@
 # 搓衣板的游戏通关日志
 
-2025年8月20日  通关不存在的你和我  评价：这个价格来说算不错的了。演出也不错，就是结局太苛刻，选错选项就不得不掐死。
+2025年8月30日  全成就月影魅像解放之羽  评价：还可以的短篇作品，只是不知道和游戏名字有什么关系，音乐也很好听。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/122yueyingmeixiang-20250830.PNG)
+
+2025年8月25日  通关不存在的你和我  评价：这个价格来说算不错的了。演出也不错，就是结局太苛刻，选错选项就不得不掐死。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/121bucunzai-20250825.PNG)
 
