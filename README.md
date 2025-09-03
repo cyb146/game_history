@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2025年9月4日  通关遗作坏结局  评价：玩起来又上头又难受又压抑，果然还是不要再玩下去了。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/123yizuo-20250904.PNG)
+
 2025年8月30日  全成就月影魅像解放之羽  评价：还可以的短篇作品，只是不知道和游戏名字有什么关系，音乐也很好听。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/122yueyingmeixiang-20250830.PNG)
