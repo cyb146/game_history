@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2025年9月11日  通关9nine 九次九日九重色  评价：还不错吧，就是结局有好多坑没填，接着玩下一部了。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/1249nine1-20250911.PNG)
+
 2025年9月4日  通关遗作坏结局  评价：玩起来又上头又难受又压抑，果然还是不要再玩下去了。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/123yizuo-20250904.PNG)
