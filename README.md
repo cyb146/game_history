@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2025年9月14日  通关9nine 天色天歌天之音  评价：好棒阿，妹妹形象写的很好，最后还埋了个大BOSS。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/1259nine2-20250914.PNG)
+
 2025年9月11日  通关9nine 九次九日九重色  评价：还不错吧，就是结局有好多坑没填，接着玩下一部了。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/1249nine1-20250911.PNG)
