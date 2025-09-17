@@ -1,5 +1,13 @@
 # 搓衣板的游戏通关日志
 
+2025年9月17日  通关9nine 新章  评价：诈尸了，一般般吧，不太喜欢儿女情长的情节，不过索菲的CG很好看。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/1289nine5-20250917.PNG)
+
+2025年9月17日  通关9nine 雪色雪花雪之痕  评价：太精彩了，男主也很厉害，与一太出生了。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/1289nine4-20250917.PNG)
+
 2025年9月14日  通关9nine 天色天歌天之音  评价：好棒阿，妹妹形象写的很好，最后还埋了个大BOSS。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/1259nine2-20250914.PNG)
