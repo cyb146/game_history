@@ -6,7 +6,11 @@
 
 2025年9月17日  通关9nine 雪色雪花雪之痕  评价：太精彩了，男主也很厉害，与一太出生了。
 
-![image](https://github.com/cyb146/game_history/blob/main/image/1289nine4-20250917.PNG)
+![image](https://github.com/cyb146/game_history/blob/main/image/1279nine4-20250917.PNG)
+
+2025年9月15日  通关9nine 春色春恋春熙风  评价：这作观感不太好，感情戏写得太拖拉了。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/1269nine3-20250915.PNG)
 
 2025年9月14日  通关9nine 天色天歌天之音  评价：好棒阿，妹妹形象写的很好，最后还埋了个大BOSS。
 
