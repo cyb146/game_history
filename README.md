@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2025年10月13日  通关媚肉之香沙耶结局  评价：elf社的作品玩起来总是很不舒服。至于游戏，已经揭晓答案之后我也没兴趣再装作不知道去推其他路线，作为十二神器实在是不够格。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/129meirou-20251013.PNG)
+
 2025年9月17日  通关9nine 新章  评价：诈尸了，一般般吧，不太喜欢儿女情长的情节，不过索菲的CG很好看。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/128-9nine5-20250917.PNG)
