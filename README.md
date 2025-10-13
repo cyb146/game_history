@@ -2,23 +2,23 @@
 
 2025年9月17日  通关9nine 新章  评价：诈尸了，一般般吧，不太喜欢儿女情长的情节，不过索菲的CG很好看。
 
-![image](https://github.com/cyb146/game_history/blob/main/image/1289nine5-20250917.PNG)
+![image](https://github.com/cyb146/game_history/blob/main/image/128-9nine5-20250917.PNG)
 
 2025年9月17日  通关9nine 雪色雪花雪之痕  评价：太精彩了，男主也很厉害，与一太出生了。
 
-![image](https://github.com/cyb146/game_history/blob/main/image/1279nine4-20250917.PNG)
+![image](https://github.com/cyb146/game_history/blob/main/image/127-9nine4-20250917.PNG)
 
 2025年9月15日  通关9nine 春色春恋春熙风  评价：这作观感不太好，感情戏写得太拖拉了。
 
-![image](https://github.com/cyb146/game_history/blob/main/image/1269nine3-20250915.PNG)
+![image](https://github.com/cyb146/game_history/blob/main/image/126-9nine3-20250915.PNG)
 
 2025年9月14日  通关9nine 天色天歌天之音  评价：好棒阿，妹妹形象写的很好，最后还埋了个大BOSS。
 
-![image](https://github.com/cyb146/game_history/blob/main/image/1259nine2-20250914.PNG)
+![image](https://github.com/cyb146/game_history/blob/main/image/125-9nine2-20250914.PNG)
 
 2025年9月11日  通关9nine 九次九日九重色  评价：还不错吧，就是结局有好多坑没填，接着玩下一部了。
 
-![image](https://github.com/cyb146/game_history/blob/main/image/1249nine1-20250911.PNG)
+![image](https://github.com/cyb146/game_history/blob/main/image/124-9nine1-20250911.PNG)
 
 2025年9月4日  通关遗作坏结局  评价：玩起来又上头又难受又压抑，果然还是不要再玩下去了。
 
