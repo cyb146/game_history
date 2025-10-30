@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2025年10月30日  通关古色迷宫轮舞曲结局  评价：号称最难的galgame，即使如此我也无攻略通关了，这命运量系统做的真难受，游戏本身剧情还行吧，到达全CG的真结局太肝了，暂时就这样吧。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/130gusemigong-20251030.PNG)
+
 2025年10月13日  通关媚肉之香沙耶结局  评价：elf社的作品玩起来总是很不舒服。至于游戏，已经揭晓答案之后我也没兴趣再装作不知道去推其他路线，作为十二神器实在是不够格。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/129meirou-20251013.PNG)
