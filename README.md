@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2025年11月19日  通关噬血代码to eternity结局  评价：我不喜欢，各种意义上都是，JPRG加魂系就是狗屎。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/131codevein-20251119.PNG)
+
 2025年10月30日  通关古色迷宫轮舞曲结局  评价：号称最难的galgame，即使如此我也无攻略通关了，这命运量系统做的真难受，游戏本身剧情还行吧，到达全CG的真结局太肝了，暂时就这样吧。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/130gusemigong-20251030.PNG)
