@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2025年12月4日  通关魔法少女魔女审判  评价：差点意思，这个结局不太符合主菜单的音乐。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/132MagicalGirlWitchTrials-20251204.PNG)
+
 2025年11月19日  通关噬血代码to eternity结局  评价：我不喜欢，各种意义上都是，JPRG加魂系就是狗屎。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/131codevein-20251119.PNG)
