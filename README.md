@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2026年3月6日  通关叛逆神魂  评价：只有美术还行，玩法和剧情都一塌糊涂。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/133pannishenhun-20260306.PNG)
+
 2025年12月4日  通关魔法少女魔女审判  评价：差点意思，这个结局不太符合主菜单的音乐。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/132MagicalGirlWitchTrials-20251204.PNG)
