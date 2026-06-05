@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2026年6月6日  通关happiness2  评价：我大概已经玩不进普通的galgame了...跳了好多。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/134happiness2-20260606.PNG)
+
 2026年3月6日  通关叛逆神魂  评价：只有美术还行，玩法和剧情都一塌糊涂。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/133pannishenhun-20260306.PNG)
