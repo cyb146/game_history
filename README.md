@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2026年6月28日 通关梦幻魔法公主  评价：还行，就是有点无聊，好歹算是打出了真结局和隐藏结局
+
+![image](https://github.com/cyb146/game_history/blob/main/image/135menghuanmofagongzhu-20260628.PNG)
+
 2026年6月6日  通关happiness2  评价：我大概已经玩不进普通的galgame了...跳了好多。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/134happiness2-20260606.PNG)
