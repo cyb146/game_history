@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2026年7月21日 通关被封锁的涩谷  评价：不错的呀，有搞笑情节，也有深度剧情。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/137sierba-20260721.PNG)
+
 2026年7月5日 通关九日  评价：挺好玩的，就是懒得再全成就了。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/136ninesols-20260705.PNG)
