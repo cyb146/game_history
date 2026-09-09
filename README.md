@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2026年9月9日 全成就衔尾：龙之铃  评价：我很喜欢，就是剧情没怎么看懂。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/138dragonloop-20260909.PNG)
+
 2026年7月21日 通关被封锁的涩谷  评价：不错的呀，有搞笑情节，也有深度剧情。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/137sierba-20260721.PNG)
