@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2026年10月4日 全成就神树残响  评价：还不错，就是堆怪有点厉害。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/139shenshucanxiang-20261004.PNG)
+
 2026年9月9日 全成就衔尾：龙之铃  评价：我很喜欢，就是剧情没怎么看懂。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/138dragonloop-20260909.PNG)
