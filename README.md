@@ -1,5 +1,9 @@
 # 搓衣板的游戏通关日志
 
+2026年10月17日 通关龙胤立志传  评价：烂游戏，烂剧情。
+
+![image](https://github.com/cyb146/game_history/blob/main/image/140longyinlizhizhuan-20261017.PNG)
+
 2026年10月4日 全成就神树残响  评价：还不错，就是堆怪有点厉害。
 
 ![image](https://github.com/cyb146/game_history/blob/main/image/139shenshucanxiang-20261004.PNG)
